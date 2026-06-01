@@ -56,7 +56,7 @@ Our mission is to make professional career guidance accessible to everyone. Smar
 
 - Email: abdullahaslam6212@gmail.com
 - GitHub: https://github.com/RMabdullah6212
-- LinkedIn: Add your LinkedIn profile URL here
+- LinkedIn:https://www.linkedin.com/in/mabdullah6212/
 
 ---
 
